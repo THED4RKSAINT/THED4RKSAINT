@@ -3,6 +3,7 @@
 <br>
 
 "ʜᴏᴘᴇ. ɪꜱɴ'ᴛ ᴛʜᴀᴛ ʀɪɢʜᴛ, ᴛᴀᴏɪꜱᴛ-ʜʏᴜɴɢ?"
+
 ![image alt](https://github.com/THED4RKSAINT/THED4RKSAINT/blob/main/Untitled895_20260811110444.png?raw=true) 
 
 [straw](https://dearmei11.straw.page) ⚚ [atabook](https://dearmeii.atabook.org/) ⚚ [insta](https://www.instagram.com/dearmeii1/) 
