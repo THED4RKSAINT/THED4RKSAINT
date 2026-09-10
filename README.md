@@ -8,6 +8,8 @@
 
 [straw](https://dearmei11.straw.page) ⚚ [atabook](https://dearmeii.atabook.org/) ⚚ [insta](https://www.instagram.com/dearmeii1/) 
 
+no resp = afk/offtab
+
 <!--
 **THED4RKSAINT/THED4RKSAINT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
